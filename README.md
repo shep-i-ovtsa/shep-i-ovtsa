@@ -1,1 +1,1 @@
-hey im shep i do stuff yea ok bye
+hey im shep i do stuff, type funny symbols and hope it works
