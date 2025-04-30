@@ -1,1 +1,2 @@
-hey im shep i do stuff, type funny symbols and hope it works
+why are you here??? go to sleep already >:c
+anyways nothing much for you to read so uh bye
